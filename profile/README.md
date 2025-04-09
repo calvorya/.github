@@ -2,6 +2,6 @@
 
 
 
-🙋‍♀️ A short introduction - New Ideas
+🙋‍♀️ New Ideas
 
 
